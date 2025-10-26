@@ -6,7 +6,7 @@ The coaster bus groaned as it climbed another winding turn, its engine straining
 
 "Just a headache," Areeba mumbled, not lifting her head. The railing felt like ice against her skin, a small mercy in the stuffy bus. Outside, the Punjab plains had given way to rocky terrain, the landscape transforming with every kilometer that brought them closer to Naran.
 
-Across the aisle, her cousin Ayesha was scrolling through her phone, trying to catch the last bars of signal before they ventured deeper into the mountains. The rest of the family, Uncle Jamil, Aunt Sadia, and the kids, occupied the seats behind them, their chatter creating a constant buzz of excitement.
+Across the aisle, her sister Ayesha was scrolling through her phone, trying to catch the last bars of signal before they ventured deeper into the mountains. The rest of the family, Uncle Jamil, Aunt Sadia, and the kids, occupied the seats behind them, their chatter creating a constant buzz of excitement.
 
 "Lahore seems like days ago already," Aunt Fareeda said, fanning herself with a magazine. "These trips always feel longer than they are."
 
@@ -26,7 +26,7 @@ The voice sounded distant, muffled, like someone calling from underwater.
 
 Louder now. Sharper.
 
-Ayesha looked up from her phone, her thumb frozen mid-scroll. She'd heard Aunt Fareeda call her cousin's name three times now, each repetition climbing in pitch. Something in that tone made her stomach tighten.
+Ayesha looked up from her phone, her thumb frozen mid-scroll. She'd heard Aunt Fareeda call her sister's name three times now, each repetition climbing in pitch. Something in that tone made her stomach tighten.
 
 "What's wrong?" Ayesha asked, pulling out her earbuds.
 
@@ -56,7 +56,7 @@ A bottle appeared, thrust forward by shaking hands. Aunt Fareeda unscrewed it wi
 
 "Then drive faster!" Aunt Sadia's voice cracked.
 
-Ayesha dampened her dupatta and pressed it against Areeba's forehead, her own heart hammering against her ribs. Her cousin's skin felt wrong, too cold, too clammy. "Areeba, come on. Wake up. *Please.*"
+Ayesha dampened her dupatta and pressed it against Areeba's forehead, her own heart hammering against her ribs. Her sister's skin felt wrong, too cold, too clammy. "Areeba, come on. Wake up. *Please.*"
 
 The bus careened around another bend. Someone in the back was reciting Ayat al-Kursi, the prayer barely audible over the engine's roar.
 
@@ -90,7 +90,7 @@ Areeba obeyed, taking small sips. Color was slowly returning to her face, the aw
 
 "Yes." Areeba managed a weak smile. "I'm fine. Really. Sorry for scaring everyone."
 
-But Ayesha noticed the way her cousin's hands trembled as she held the water bottle. And the way her eyes kept darting to the window, as if looking for something in the passing landscape.
+But Ayesha noticed the way her sister's hands trembled as she held the water bottle. And the way her eyes kept darting to the window, as if looking for something in the passing landscape.
 
 ---
 

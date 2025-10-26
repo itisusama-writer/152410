@@ -4,7 +4,7 @@ Aunt Fareeda's scream shattered the mountain stillness.
 
 "AREEBA!"
 
-Ayesha's bag hit the ground as she lunged forward, dropping to her knees beside her cousin's crumpled form. The concrete was rough and cold through her shalwar, tiny pebbles digging into her skin. Areeba lay motionless, her dupatta twisted around her neck, one arm bent beneath her at an angle that made Ayesha's stomach lurch.
+Ayesha's bag hit the ground as she lunged forward, dropping to her knees beside her sister's crumpled form. The concrete was rough and cold through her shalwar, tiny pebbles digging into her skin. Areeba lay motionless, her dupatta twisted around her neck, one arm bent beneath her at an angle that made Ayesha's stomach lurch.
 
 "Not again!" Aunt Sadia's voice pitched high with panic. "Ya Allah, not again!"
 
@@ -32,7 +32,7 @@ Water materialized, a bottle thrust into the circle by one of the male cousins. 
 
 Nothing.
 
-Ayesha's throat tightened. On the bus, Areeba had come around quickly. This was taking too long. Her cousin's face had that same awful grayish tint, lips bloodless and slightly parted. One of her sandals had come off in the fall, and Ayesha found herself staring at it, lying there a few feet away, abandoned and pathetic.
+Ayesha's throat tightened. On the bus, Areeba had come around quickly. This was taking too long. Her sister's face had that same awful grayish tint, lips bloodless and slightly parted. One of her sandals had come off in the fall, and Ayesha found herself staring at it, lying there a few feet away, abandoned and pathetic.
 
 "Areeba!" Uncle Jamil patted her cheek, gentle at first, then firmer. "Come on, beta. Open your eyes."
 
@@ -46,7 +46,7 @@ Areeba's eyes flew open, wide and startled, her whole body jerking as if she'd b
 
 "She's awake! Alhamdulillah!" Aunt Fareeda clutched her chest.
 
-Areeba blinked rapidly, her gaze unfocused and wild, darting from face to face without recognition. For a terrible moment, Ayesha thought she wasn't going to come back this time, that whoever was looking out through Areeba's eyes wasn't her cousin at all.
+Areeba blinked rapidly, her gaze unfocused and wild, darting from face to face without recognition. For a terrible moment, Ayesha thought she wasn't going to come back this time, that whoever was looking out through Areeba's eyes wasn't her sister at all.
 
 But then Areeba's expression shifted, clarity filtering back in stages. "What... what happened?"
 
@@ -62,7 +62,7 @@ The relief was palpable. Uncle Jamil helped her sit up slowly, one hand supporti
 
 "Nothing's wrong!" Areeba tried to stand, wobbled, and Uncle Jamil caught her elbow. "I feel fine now. Really. Please, I don't want to ruin the trip for everyone."
 
-Ayesha studied her cousin's face. The color was returning, yes, but there was something else, a tightness around her eyes, a forced quality to her smile. Like she was performing normalcy rather than feeling it.
+Ayesha studied her sister's face. The color was returning, yes, but there was something else, a tightness around her eyes, a forced quality to her smile. Like she was performing normalcy rather than feeling it.
 
 "We should at least rest," Uncle Jamil said. "How much farther to the hotel, driver?"
 
@@ -72,11 +72,11 @@ The bus driver had joined the crowd, his leathery face creased with concern. "Th
 
 They helped Areeba up, a forest of supporting hands. She moved gingerly, testing each step. Ayesha retrieved the fallen sandal and her own abandoned bag, her mind spinning. Twice in less than an hour. What were the odds of that being coincidence?
 
-As they guided Areeba back to the bus, Ayesha caught her cousin's eye. Areeba looked away quickly, but not before Ayesha saw it, a flicker of something that might have been fear.
+As they guided Areeba back to the bus, Ayesha caught her sister's eye. Areeba looked away quickly, but not before Ayesha saw it, a flicker of something that might have been fear.
 
 ---
 
-The last leg of the journey passed in tense silence. The earlier excitement had evaporated, replaced by a watchful anxiety. Areeba sat wedged between Aunt Fareeda and the window, a human buffer against another collapse. Ayesha sat across the aisle, her eyes never leaving her cousin for more than a few seconds.
+The last leg of the journey passed in tense silence. The earlier excitement had evaporated, replaced by a watchful anxiety. Areeba sat wedged between Aunt Fareeda and the window, a human buffer against another collapse. Ayesha sat across the aisle, her eyes never leaving her sister for more than a few seconds.
 
 Areeba stared out the window, her reflection ghostly against the passing mountains. She didn't speak. Didn't eat the biscuits Aunt Sadia offered. Just sat there, unnaturally still, while the bus climbed higher and higher into the Kaghan Valley.
 
@@ -86,7 +86,7 @@ Beautiful. It should have been beautiful.
 
 Instead, Ayesha felt a growing unease she couldn't name. Maybe it was the mountains themselves, too tall, too close, their shadows falling across the road like prison bars. Or maybe it was the way Areeba's lips were moving silently, forming words no one could hear.
 
-When Ayesha blinked, her cousin's lips were still. Had she imagined it?
+When Ayesha blinked, her sister's lips were still. Had she imagined it?
 
 Finally, the bus rounded a bend and Naran Bazar sprawled below them, a cluttered ribbon of hotels and shops wedged into the valley, the river rushing alongside it. Even in the off-season, the main bazaar buzzed with activity. Tour jeeps kicked up dust. Street vendors called out their wares. Tourists in colorful jackets browsed shops selling shawls and wooden crafts.
 
@@ -174,7 +174,7 @@ Silence.
 
 Areeba's mouth didn't move. She just sat there on the landing floor, surrounded by her panicked family, staring at them with eyes that held all the warmth of winter stones.
 
-Ayesha's skin prickled. Every hair on her arms stood up. This wasn't her cousin. This was something wearing her cousin's face.
+Ayesha's skin prickled. Every hair on her arms stood up. This wasn't her sister. This was something wearing her sister's face.
 
 "Areeba?" Ayesha leaned closer, searching those empty eyes. "Can you hear me?"
 
@@ -206,7 +206,7 @@ The relief was immediate but tentative. Aunt Fareeda pulled Areeba into a crushi
 
 "I... I did?" Areeba's voice was small, confused. Normal. This was normal Areeba, frightened, disoriented, but herself. "I don't remember. I was climbing the stairs and then... nothing."
 
-Ayesha studied her cousin's face, looking for traces of that terrible emptiness. But Areeba's eyes were clear now, frightened but present. Had Ayesha imagined it? Had the stress and fear made her see things that weren't there?
+Ayesha studied her sister's face, looking for traces of that terrible emptiness. But Areeba's eyes were clear now, frightened but present. Had Ayesha imagined it? Had the stress and fear made her see things that weren't there?
 
 But the cold feeling in her stomach remained.
 
@@ -220,7 +220,7 @@ But the cold feeling in her stomach remained.
 
 "She fainted in Lahore plains and on the highway before we even reached altitude," Uncle Tariq countered. "This is something else."
 
-They argued over Areeba's head while Ayesha helped her cousin to her feet. Areeba leaned heavily on her, legs shaking.
+They argued over Areeba's head while Ayesha helped her sister to her feet. Areeba leaned heavily on her, legs shaking.
 
 "Thanks," Areeba whispered.
 

@@ -2,7 +2,7 @@
 
 The two hours at Saif-ul-Malook passed in a blur of photographs and forced normalcy. The family posed against the backdrop of impossible blue water and snow-capped peaks, smiling for cameras while Ayesha watched Areeba from the corner of her eye.
 
-Her cousin remained unnaturally energetic, bounding from rock to rock, picking up stones and examining them with childlike fascination, asking questions about everything—"What kind of fish live here?" "Why is the water this color?" "What are those birds called?"—like a tourist in her own body.
+Her sister remained unnaturally energetic, bounding from rock to rock, picking up stones and examining them with childlike fascination, asking questions about everything—"What kind of fish live here?" "Why is the water this color?" "What are those birds called?"—like a tourist in her own body.
 
 Uncle Jamil checked his watch. "Okay, everyone! Time to head back. We want to reach Naran before dark."
 
@@ -74,7 +74,7 @@ Ayesha's grip loosened. "Areeba?"
 
 "I don't—I can't—" Areeba's whole body was trembling now. The tears came faster. "I keep losing time. I'll be doing something and then suddenly I'm somewhere else and I don't remember—I don't remember—" Her voice broke. "Help me. Please. Something's wrong. Something's inside—"
 
-Her eyes cleared for just a moment. Focused. And in them, Ayesha saw her cousin. The real Areeba. Terrified and trapped and fighting.
+Her eyes cleared for just a moment. Focused. And in them, Ayesha saw her sister. The real Areeba. Terrified and trapped and fighting.
 
 "Oh my God," Ayesha breathed. "You're still in there—"
 
@@ -108,13 +108,11 @@ Areeba had pressed herself back against the jeep, one hand to her reddened cheek
 
 "Ayesha!" Aunt Fareeda's voice was sharp with disappointment. "She's your sister! What's gotten into you?"
 
-Sister. They called each other that, even though they were cousins. In their culture, close cousins were sisters, brothers. Family.
-
 "She's not—" Ayesha started, but how could she finish that sentence? She's not my sister? She's not herself? She's not human?
 
 "I know she's been acting strange," Aunt Fareeda continued, her voice softening slightly, "and I know you're worried. We all are. But you can't just attack her—"
 
-"I didn't attack her! I was trying to—" What? Help? Confront whatever was wearing her cousin's skin? "Something's wrong with her!"
+"I didn't attack her! I was trying to—" What? Help? Confront whatever was wearing her sister's skin? "Something's wrong with her!"
 
 "Yes, obviously something is wrong! She fainted three times yesterday! But manhandling her isn't going to help!"
 
@@ -132,7 +130,7 @@ The performance was perfect. Too perfect.
 
 The words were a challenge. A dare. Say otherwise. Tell them what you think you saw. See if they believe you.
 
-Ayesha's jaw clenched. Her hands curled into fists at her sides. Every instinct screamed at her to tell them, to make them see—but what had she actually seen? Her cousin jerking, slapping herself, and now standing here with red cheeks that looked exactly like someone else had hit her.
+Ayesha's jaw clenched. Her hands curled into fists at her sides. Every instinct screamed at her to tell them, to make them see—but what had she actually seen? Her sister jerking, slapping herself, and now standing here with red cheeks that looked exactly like someone else had hit her.
 
 He'd done it on purpose, she realized with cold clarity. Slapped Areeba's face hard enough to leave marks. To make it look like Ayesha had struck her.
 
@@ -170,7 +168,7 @@ Ayesha's hands clenched in her lap. He was enjoying this. Twisting the knife.
 
 "Didn't you?" The voice was still Areeba's, but the tone was wrong. Too confident. Too amused. "That's not what my face says. That's not what they all think."
 
-Ayesha finally turned to look at her cousin. Areeba's expression was serene, almost peaceful. But her eyes—her eyes held something cold and calculating. Something that definitely wasn't female. The way he looked at her, assessed her, was too direct. Too aggressive.
+Ayesha finally turned to look at her. Areeba's expression was serene, almost peaceful. But her eyes—her eyes held something cold and calculating. Something that definitely wasn't female. The way he looked at her, assessed her, was too direct. Too aggressive.
 
 "What are you?" Ayesha whispered.
 
@@ -250,7 +248,7 @@ Areeba smiled—a slow, cold smile that Areeba's face had never made before. "I 
 
 Ayesha felt ice spread through her chest. "That's not fair. That's not—this is her body. Her life."
 
-"And now it's mine too." He leaned closer, and Ayesha instinctively leaned back. "Here's what's going to happen. You're going to keep your mouth shut. You're not going to tell anyone about our little... situation. Because if you do—" his smile widened, "—who do you think they'll believe? The girl who's been acting a bit strange after fainting, or the girl who attacked her cousin and left bruises on her face?"
+"And now it's mine too." He leaned closer, and Ayesha instinctively leaned back. "Here's what's going to happen. You're going to keep your mouth shut. You're not going to tell anyone about our little... situation. Because if you do—" his smile widened, "—who do you think they'll believe? The girl who's been acting a bit strange after fainting, or the girl who attacked her sister and left bruises on her face?"
 
 "I didn't—"
 
@@ -268,7 +266,7 @@ The threat was clear. Speak up, and he'd make sure Ayesha was isolated, discredi
 
 Ayesha stared at him, horror and rage warring in her chest. "You can't—"
 
-"I can. And I will, if you force my hand." He straightened, and just like that, his expression shifted. Softened. Became Areeba's again—or a convincing imitation of it. "So be a good cousin. Keep your suspicions to yourself. And maybe, just maybe, we can all get through this trip without anyone getting hurt."
+"I can. And I will, if you force my hand." He straightened, and just like that, his expression shifted. Softened. Became Areeba's again—or a convincing imitation of it. "So be a good sister. Keep your suspicions to yourself. And maybe, just maybe, we can all get through this trip without anyone getting hurt."
 
 The bathroom door opened. Aunt Fareeda emerged in a cloud of steam, wrapped in a robe, toweling her hair.
 
@@ -324,7 +322,7 @@ Outside the window, night had fallen completely over Naran. The mountains loomed
 
 Beautiful and cold and indifferent.
 
-Just like the thing sitting across the room, wearing her cousin's face, waiting.
+Just like the thing sitting across the room, wearing her sister's face, waiting.
 
 Always watching.
 

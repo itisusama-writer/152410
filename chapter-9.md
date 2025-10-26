@@ -6,7 +6,7 @@ For a disorienting moment, she thought she was dreaming. But no—the whispers w
 
 She opened her eyes carefully, not moving, and looked toward Areeba's bed.
 
-Her cousin sat upright, her back against the headboard, having what could only be described as an argument with herself. Her expressions shifted rapidly—annoyed, then amused, then fond, then exasperated—her lips moving in conversation with someone only she could hear.
+Her sister sat upright, her back against the headboard, having what could only be described as an argument with herself. Her expressions shifted rapidly—annoyed, then amused, then fond, then exasperated—her lips moving in conversation with someone only she could hear.
 
 Except it wasn't just in her head anymore.
 
@@ -44,7 +44,7 @@ Areeba bit her lip, glancing at the sleeping aunts to make sure they were still 
 
 "Last night. We figured it out by accident. I was trying to give him space—mentally, you know?—and he just... slipped out. For a few seconds." Areeba's eyes were bright, excited. "We've been practicing. He's getting better at holding the form."
 
-Ayesha stared at her cousin. "Areeba, do you understand how insane this is? How much deeper this goes? First he's possessing you, then you're sharing, and now he can just... leave and come back?"
+Ayesha stared at her. "Areeba, do you understand how insane this is? How much deeper this goes? First he's possessing you, then you're sharing, and now he can just... leave and come back?"
 
 "Only because we're in sync," Areeba said, and there was something almost defensive in her tone. "Our wills are matched. He can't take control anymore unless I let him. And I can't push him out unless he wants to go. It's... equal now."
 
@@ -104,7 +104,7 @@ Ayesha's pulse quickened. "How?"
 
 "I could step into you. Briefly. Just long enough for you to feel the connection. To understand why she doesn't want this to end."
 
-The offer hung in the air between them. Ayesha's mind raced. To know what Areeba was experiencing. To truly understand instead of just observing from the outside. To finally grasp what was happening to her cousin—
+The offer hung in the air between them. Ayesha's mind raced. To know what Areeba was experiencing. To truly understand instead of just observing from the outside. To finally grasp what was happening to her.
 
 "No."
 
@@ -124,7 +124,7 @@ Areeba seemed to realize what she'd said. Her flush deepened to crimson. "I just
 
 "Well there are now!" Areeba's hands clenched around her chai cup. "You're... you're mine. This body is mine. This connection is ours. You don't get to just... experience it with someone else!"
 
-The possessiveness in her voice was unmistakable. Ayesha watched her cousin's internal struggle play out across her face—embarrassment warring with that fierce, protective instinct.
+The possessiveness in her voice was unmistakable. Ayesha watched her sister's internal struggle play out across her face—embarrassment warring with that fierce, protective instinct.
 
 "Areeba," Faisal's voice was gentle now, "are you jealous?"
 
@@ -184,7 +184,7 @@ Areeba glanced down at the street below, where early morning shoppers were begin
 
 They gathered their chai cups and went back into the room. The aunts were stirring, starting their morning routines. The day was beginning—their rest day, the day with no mountains, just leisurely shopping in the bazaar.
 
-As Ayesha changed clothes and got ready, she watched Areeba interact with the aunts. Watched the subtle shifts that indicated conversation with Faisal. Watched her cousin smile at private jokes and respond to comments no one else could hear.
+As Ayesha changed clothes and got ready, she watched Areeba interact with the aunts. Watched the subtle shifts that indicated conversation with Faisal. Watched her sister smile at private jokes and respond to comments no one else could hear.
 
 The family had noticed. They had to have. But they were choosing to interpret it charitably—as residual confusion from the fainting spells, as harmless eccentricity, as anything other than what it actually was.
 
@@ -228,7 +228,7 @@ Despite everything, Ayesha found herself looking at the green shawl. It was beau
 
 "And you're very welcome," Areeba added. "He says."
 
-They moved through the bazaar, and Ayesha watched her cousin with a mixture of fascination and concern. The conversations with Faisal were constant now—brief exchanges, shared observations, private jokes. Areeba would smile at nothing, or laugh suddenly, or nod in agreement with something only she could hear.
+They moved through the bazaar, and Ayesha watched her sister with a mixture of fascination and concern. The conversations with Faisal were constant now—brief exchanges, shared observations, private jokes. Areeba would smile at nothing, or laugh suddenly, or nod in agreement with something only she could hear.
 
 At one shop, Areeba picked up a traditional men's waistcoat, examining it with interest.
 
@@ -270,7 +270,7 @@ And Areeba continued her quiet conversation with the entity sharing her body, in
 
 Because she didn't want to be saved.
 
-After lunch, as they walked back through the bazaar toward the hotel, Ayesha fell into step beside her cousin.
+After lunch, as they walked back through the bazaar toward the hotel, Ayesha fell into step beside her sister.
 
 "They're starting to notice," she said quietly.
 
@@ -280,11 +280,11 @@ After lunch, as they walked back through the bazaar toward the hotel, Ayesha fel
 
 Areeba was quiet for a moment, her expression distant. Having an internal conversation, Ayesha realized. Consulting with Faisal.
 
-Finally, she spoke. "We'll try. But honestly? I'm not sure we can. Or want to. This is who we are now. Both of us. Together." She looked at Ayesha with eyes that held both her cousin and someone else. "I know you think this is wrong. Unnatural. But it's my life. My choice. And I choose this. I choose him."
+Finally, she spoke. "We'll try. But honestly? I'm not sure we can. Or want to. This is who we are now. Both of us. Together." She looked at Ayesha with eyes that held both her sister and someone else. "I know you think this is wrong. Unnatural. But it's my life. My choice. And I choose this. I choose him."
 
 The declaration was quiet but firm. Final.
 
-And Ayesha realized, with a sinking feeling, that she'd lost. Whatever battle she'd been fighting to save her cousin from possession—she'd lost.
+And Ayesha realized, with a sinking feeling, that she'd lost. Whatever battle she'd been fighting to save her sister from possession—she'd lost.
 
 Because you couldn't save someone who'd already decided they didn't need saving.
 

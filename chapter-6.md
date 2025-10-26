@@ -112,7 +112,7 @@ Ayesha stumbled back, horror washing over her. "You—you're both in there right
 
 "This is wrong," Ayesha breathed. "This is so wrong."
 
-"It's survival," Faisal said, taking control again. His eyes—Areeba's eyes but with that cold, male assessment—studied Ayesha. "You should be grateful. Your cousin is alive. She's here. She can still laugh, talk, be with her family. That's more than she'd have if I'd consumed her completely."
+"It's survival," Faisal said, taking control again. His eyes—Areeba's eyes but with that cold, male assessment—studied Ayesha. "You should be grateful. Your sister is alive. She's here. She can still laugh, talk, be with her family. That's more than she'd have if I'd consumed her completely."
 
 "Give Areeba back," Ayesha demanded, trying to keep her voice steady. "All the way back. Get out of her body."
 
@@ -124,7 +124,7 @@ Ayesha stumbled back, horror washing over her. "You—you're both in there right
 
 "—and I get to be myself for the normal things," Areeba continued. "The family time. The fun parts. It's not perfect, but it's better than the alternative."
 
-Ayesha felt like she was going insane. She was watching her cousin's face cycle through expressions, hearing two different people speak from the same mouth, seeing the shift in posture and mannerism as control changed hands.
+Ayesha felt like she was going insane. She was watching her sister's face cycle through expressions, hearing two different people speak from the same mouth, seeing the shift in posture and mannerism as control changed hands.
 
 "How can you be okay with this?" Ayesha asked Areeba. "How can you just... accept sharing your body with a stranger?"
 
@@ -146,7 +146,7 @@ She cut herself off, but Ayesha caught the implication. When she needed to do th
 
 The words came out harsh, sharp—but Areeba's hand flew to her own mouth, her eyes wide with shock. When she lowered it, she was glaring at nothing, at the air, at herself.
 
-"Let me talk to her," Areeba hissed to herself. "This is my cousin. My family. Let me handle this."
+"Let me talk to her," Areeba hissed to herself. "This is my sister. My family. Let me handle this."
 
 Watching someone argue with themselves was surreal in a way Ayesha couldn't quite process. Areeba's face shifted through micro-expressions—anger, frustration, pleading—her lips moving silently as if having an internal conversation.
 
@@ -160,7 +160,7 @@ Finally, Areeba's expression settled. She looked at Ayesha with tired eyes.
 
 "He thinks you're going to try to separate us. Exorcise him or something." Areeba managed a weak smile. "But I told him you wouldn't. Because you understand that I'm choosing this. Right?"
 
-The question hung between them, heavy with implication. If Ayesha tried to "save" Areeba against her will, she'd be betraying her cousin's choice. But if she accepted this arrangement, she'd be allowing something unnatural to continue.
+The question hung between them, heavy with implication. If Ayesha tried to "save" Areeba against her will, she'd be betraying her sister's choice. But if she accepted this arrangement, she'd be allowing something unnatural to continue.
 
 Before Ayesha could answer, Uncle Jamil's voice boomed across the lobby.
 
@@ -206,9 +206,9 @@ Perfect conditions for Areeba to need Faisal's strength.
 
 Perfect conditions for him to take control.
 
-Ayesha glanced over at her cousin, who was braiding Hiba's hair, her fingers moving with practiced ease, her face soft with concentration and affection.
+Ayesha glanced over at her sister, who was braiding Hiba's hair, her fingers moving with practiced ease, her face soft with concentration and affection.
 
-This was Areeba. Her cousin. Her sister in all but blood.
+This was Areeba. Her sister, the only one.
 
 But she was also Faisal. A stranger. An intruder. An entity that had no right to be there.
 

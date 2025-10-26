@@ -62,7 +62,7 @@ Before Ayesha could react, Areeba crossed the room in three long strides and pul
 
 "You smell amazing," Areeba breathed, her voice muffled against Ayesha's skin.
 
-Ayesha went rigid. Areeba was touchy sometimes, they all were, it was normal for cousins, but this felt wrong. Too tight. Too intense. Too familiar. Areeba was inhaling deeply, like she was memorizing Ayesha's scent.
+Ayesha went rigid. Areeba was touchy sometimes, they all were, it was normal for some families, but this felt wrong. Too tight. Too intense. Too familiar. Areeba was inhaling deeply, like she was memorizing Ayesha's scent.
 
 "Okay, that's..." Ayesha pushed her away, forcing a laugh to cover her discomfort. "Okay, calm down. Go get ready. We're leaving soon."
 
@@ -98,7 +98,7 @@ Finally, the bathroom door opened.
 
 Areeba emerged and Ayesha's eyebrows shot up.
 
-Her cousin's outfit was a disaster, the clashing colors somehow even worse in combination, the dupatta draped crookedly over one shoulder. But it was her face that made Ayesha stare. Areeba wore no makeup. None. Not even the tinted lip balm she usually applied, or the kajal she never left the room without.
+Her sister's outfit was a disaster, the clashing colors somehow even worse in combination, the dupatta draped crookedly over one shoulder. But it was her face that made Ayesha stare. Areeba wore no makeup. None. Not even the tinted lip balm she usually applied, or the kajal she never left the room without.
 
 Her hair hung loose and uncombed, wild waves falling past her shoulders, still tangled from sleep.
 
@@ -152,7 +152,7 @@ Areeba approached cautiously, almost shyly. Ayesha guided her to sit on the bed 
 
 Ayesha began braiding, her fingers working automatically through the familiar motions. French braid, tight and neat. Behind Areeba's head, safe from view, Ayesha let her expression show what she was feeling. Worry. Confusion. And something deeper. Something cold.
 
-Because Areeba sat perfectly still, her posture straight, barely breathing. Like she'd never had her hair braided before. Like she didn't know this was something cousins did for each other all the time.
+Because Areeba sat perfectly still, her posture straight, barely breathing. Like she'd never had her hair braided before. Like she didn't know this was something sisters did for each other all the time.
 
 Like she didn't know who Ayesha was.
 
@@ -172,7 +172,7 @@ Ayesha opened her mouth to respond, to say what, she didn't know—but another k
 
 "Coming!" Aunt Fareeda called. She ushered everyone toward the door, grabbing bags and dupatta pins and water bottles. The small room erupted into organized chaos.
 
-Ayesha hung back, watching Areeba. Her cousin moved through the flurry with an odd carefulness, like she was navigating an obstacle course. She picked up a small purse, her own purse, which she'd carried yesterday, and stared at it for a long moment before slinging it over her shoulder.
+Ayesha hung back, watching Areeba. Her sister moved through the flurry with an odd carefulness, like she was navigating an obstacle course. She picked up a small purse, her own purse, which she'd carried yesterday, and stared at it for a long moment before slinging it over her shoulder.
 
 Then she caught Ayesha watching and smiled. That same bright, empty smile.
 
@@ -186,4 +186,4 @@ She was going to watch Areeba. Closely. Every word, every movement, every strang
 
 Because whoever had woken up in that bed this morning...
 
-Ayesha was becoming increasingly certain it wasn't her cousin.
+Ayesha was becoming increasingly certain it wasn't her sister.

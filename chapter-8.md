@@ -38,7 +38,7 @@ Ayesha sat on her bed, pulling off her shoes with a wince. Her feet were swollen
 
 "Not tired," Areeba said. Then she paused, tilted her head slightly, listening to something Ayesha couldn't hear. "Well, I am. But not enough to sleep."
 
-Ayesha studied her cousin. The transitions had become so smooth now—so seamless—that she could barely tell when the switch happened unless she was really watching. But she could still see the tells. The way Areeba's posture would shift. The way her expressions would change, subtle but distinct.
+Ayesha studied her sister. The transitions had become so smooth now—so seamless—that she could barely tell when the switch happened unless she was really watching. But she could still see the tells. The way Areeba's posture would shift. The way her expressions would change, subtle but distinct.
 
 Right now, watching Areeba move around the room with that efficient, purposeful energy, Ayesha was pretty sure she was watching Faisal.
 
@@ -76,7 +76,7 @@ The metaphor was oddly poetic. Ayesha didn't know how to respond.
 
 Areeba nodded. "He saved Aunt Fareeda. Of course I thanked him."
 
-It was surreal. Listening to her cousin talk about her possessor like a roommate. A partner. Someone deserving of gratitude and consideration.
+It was surreal. Listening to her sister talk about her possessor like a roommate. A partner. Someone deserving of gratitude and consideration.
 
 "Aren't you angry?" Ayesha asked. "At what he did to you? Taking over your body without permission?"
 
@@ -92,7 +92,7 @@ Areeba was quiet for a long moment. Outside, the call to Maghrib prayer echoed f
 
 "Through me," Areeba agreed. "And yes, that's not fair. I know that. But life isn't fair. And between being completely consumed and sharing... I chose sharing."
 
-Ayesha wanted to argue. Wanted to tell her cousin this was wrong, unnatural, that there had to be another way. But what way? She had no idea how to exorcise a spirit. No idea if it was even possible without hurting Areeba in the process.
+Ayesha wanted to argue. Wanted to tell her sister this was wrong, unnatural, that there had to be another way. But what way? She had no idea how to exorcise a spirit. No idea if it was even possible without hurting Areeba in the process.
 
 "Does the family suspect?" Ayesha asked instead. "About... him?"
 
@@ -102,13 +102,13 @@ Ayesha wanted to argue. Wanted to tell her cousin this was wrong, unnatural, tha
 
 "Maybe." Areeba shrugged. "We'll say I took self-defense classes. Muscle memory kicked in. They'll believe it because they want to believe it. Because the alternative is too strange."
 
-She was right. People believed what made sense to them. What fit their worldview. A possessed cousin sharing her body with a male spirit? That was too far outside normal for most people to accept.
+She was right. People believed what made sense to them. What fit their worldview. A possessed sister sharing her body with a male spirit? That was too far outside normal for most people to accept.
 
 "I won't tell them," Ayesha said quietly. "I still think this is wrong. Unnatural. But... I won't tell them. Not unless you want me to."
 
 Relief flooded Areeba's face—pure Areeba, grateful and loving. "Thank you. Really. Thank you."
 
-She reached out and squeezed Ayesha's hand. Her grip was warm, solid, real. This was still her cousin. Still the girl she'd grown up with, shared secrets with, loved like a sister.
+She reached out and squeezed Ayesha's hand. Her grip was warm, solid, real. This was still her sister. Still the girl she'd grown up with, shared secrets with, loved like a sister.
 
 Just... not only her anymore.
 

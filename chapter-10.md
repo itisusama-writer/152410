@@ -134,13 +134,13 @@ While the family scattered to use facilities and stretch their legs, Ayesha grab
 
 Areeba leaned against the sink, her expression guarded. "I know."
 
-"You can't keep this up. Not at home. Not around more people, not with your parents, not at university—"
+"You can't keep this up. Not at home. Not around more people, not with our parents, not at university—"
 
 "I know," Areeba repeated.
 
 "So you have to leave him." The words came out harder than Ayesha intended. "Faisal. You have to make him go. Before we get back. While you're still strong enough to push him out."
 
-Areeba's expression didn't change. She just stared at Ayesha with eyes that held both her cousin and someone else.
+Areeba's expression didn't change. She just stared at Ayesha with eyes that held both her sister and someone else.
 
 "You have to separate," Ayesha pressed. "Find a way. Ask him to leave. Force him if you have to. But this can't continue—"
 
@@ -170,7 +170,7 @@ Areeba was quiet for a long moment. When she spoke, her voice was gentle, patien
 
 "Because he understands me. Because he makes me brave. Because when I'm scared, he's strong. When he's lonely, I'm there. We complete each other in a way I can't explain. And yes, I know how that sounds. I know it's not normal. But it's real. It's mine. And I'm not giving it up."
 
-"Your parents—"
+"Our parents—"
 
 "Won't know. We'll be careful. More careful than we've been here."
 
@@ -186,7 +186,7 @@ The finality in her voice was unmistakable. This wasn't a decision she was still
 
 Ayesha felt tears prick her eyes. "I'm losing you."
 
-"No." Areeba stepped forward and took Ayesha's hands. Her grip was warm, solid, real. "You're not losing me. I'm still here. I'm still your cousin, your sister, your friend. I'm just... more now. We're more. And I need you to accept that. To accept us."
+"No." Areeba stepped forward and took Ayesha's hands. Her grip was warm, solid, real. "You're not losing me. I'm still here. I'm still your favorite, your sister, your friend. I'm just... more now. We're more. And I need you to accept that. To accept us."
 
 "And if I can't?" Ayesha's voice broke. "If I think this is wrong and dangerous and I need to tell someone?"
 
@@ -200,7 +200,7 @@ The bathroom door banged open, making them both jump. Little Hiba ran in, saw th
 
 "We need to get back on the bus," Areeba said quietly, still holding Ayesha's hands. "So I need an answer. Are you with us? Or against us?"
 
-Ayesha looked at her cousin—at the determination in her eyes, the set of her jaw, the way she stood like someone ready to fight for what she loved. This wasn't the uncertain, anxious Areeba who'd boarded the bus in Lahore days ago.
+Ayesha looked at her sister, at the determination in her eyes, the set of her jaw, the way she stood like someone ready to fight for what she loved. This wasn't the uncertain, anxious Areeba who'd boarded the bus in Lahore days ago.
 
 This was someone new. Someone stronger. Someone who'd found power in the strangest, most impossible place.
 
@@ -234,7 +234,7 @@ In the seat beside Ayesha, Areeba resumed her quiet conversation with the spirit
 
 And Ayesha stared out the window and wondered if her silence made her complicit. If by choosing not to tell, she was choosing to enable something that might destroy them all.
 
-But what choice did she have? Tell the family and lose her cousin's trust forever? Watch them try to "fix" Areeba, maybe hurt her in the process? Risk Faisal becoming dangerous if cornered?
+But what choice did she have? Tell the family and lose her sister's trust forever? Watch them try to "fix" Areeba, maybe hurt her in the process? Risk Faisal becoming dangerous if cornered?
 
 No. The only choice was to watch. To wait. To be ready to act if—when—things went wrong.
 
