@@ -128,33 +128,33 @@ The performance was perfect. Too perfect.
 
 "Is everything okay?" Uncle Tariq had approached, his brow furrowed with concern. "We heard shouting."
 
-"Everything's fine," Areeba said quickly, pushing off from the jeep. She even managed a weak smile. "We were just playing around. You know how we are." She looked at Ayesha, and for just a fraction of a second, something cruel flickered in her eyes. "Right, Ayesha? Just playing?"
+"Everything's fine," Areeba said quickly, pushing off from the jeep. She even managed a weak smile. "We were just playing around. You know how we are." She looked at Ayesha, and for just a fraction of a second, something cruel flickered in her eyes. Something masculine. Something that enjoyed this. "Right, Ayesha? Just playing?"
 
 The words were a challenge. A dare. Say otherwise. Tell them what you think you saw. See if they believe you.
 
-Ayesha's jaw clenched. Her hands curled into fists at her sides. Every instinct screamed at her to tell them, to make them see—but what had she actually seen? A jerking movement that could have been a muscle spasm. A slap that could have been... what? Swatting at an insect?
+Ayesha's jaw clenched. Her hands curled into fists at her sides. Every instinct screamed at her to tell them, to make them see—but what had she actually seen? Her cousin jerking, slapping herself, and now standing here with red cheeks that looked exactly like someone else had hit her.
 
-And her cousin's brief moment of clarity? That could have been anything. Confusion. Disorientation. The altitude affecting her brain.
+He'd done it on purpose, she realized with cold clarity. Slapped Areeba's face hard enough to leave marks. To make it look like Ayesha had struck her.
 
-There was no proof. Nothing concrete. Just Ayesha's gut feeling and a series of strange behaviors that could all be explained away by yesterday's fainting spells and possible head trauma.
+There was no proof. Nothing concrete. Just Ayesha's word against the evidence of those red cheeks and Areeba's wounded expression.
 
 "Right," Ayesha heard herself say, the word bitter in her mouth. "Just playing."
 
-Aunt Fareeda didn't look convinced, but she nodded. "Well, play later. We need to leave. It'll be dark soon." She turned to Areeba, her expression softening. "Are you okay, beta? Your cheek is very red."
+Aunt Fareeda didn't look convinced, but her eyes kept going to Areeba's reddened cheek. The doubt was clear on her face—doubt about Ayesha. "Well, play later. We need to leave. It'll be dark soon." She turned to Areeba, her expression softening with concern. "Are you okay, beta? Your cheek is very red. Does it hurt?"
 
-Areeba touched it gingerly. "I'm fine. I think a bug bit me earlier."
+Areeba touched it gingerly, wincing slightly. "I'm fine. It doesn't hurt much."
 
-A bug. Of course.
+She didn't offer an explanation. Didn't need to. The implication hung in the air—Ayesha had done this. Ayesha had hurt her.
 
-They loaded into the jeeps. The same configuration as before—Ayesha and Areeba in the same vehicle, separated by mere inches of seat. But the space between them felt vast. Unbridgeable.
+Uncle Tariq's expression had cooled when he looked at Ayesha. "Let's just get back to the hotel. Everyone's tired and on edge."
 
-As the jeep started and began its descent down the mountain road, Ayesha stared out the window, her mind racing. She replayed the moment over and over. The jerking. The slap. The way Areeba's eyes had cleared and she'd begged for help.
+They loaded into the jeeps in uncomfortable silence. The same configuration as before—Ayesha and Areeba in the same vehicle, separated by mere inches of seat. But the space between them felt vast. Unbridgeable.
 
-She's still in there, Ayesha thought. Trapped. Fighting.
+As the jeep started and began its descent down the mountain road, Ayesha stared out the window, her mind racing. She replayed the moment over and over. The jerking. The self-inflicted slap. The way Areeba's eyes had cleared and she'd begged for help before that thing took control again.
 
-But what was she fighting against?
+She's still in there, Ayesha thought. Trapped. Fighting. And now everyone thinks I'm the one hurting her.
 
-"You okay?" Areeba's voice came from beside her, soft and concerned.
+"You okay?" Areeba's voice came from beside her, soft and concerned. But there was an undertone to it. Something mocking.
 
 Ayesha didn't look at her. "Fine."
 
@@ -162,23 +162,25 @@ Ayesha didn't look at her. "Fine."
 
 "I'm tired."
 
-A pause. Then: "I really am sorry if I scared you. I know I've been acting weird." The voice was gentle, reasonable. "I think yesterday messed me up more than I realized. But I promise, I'm still me."
+"Your aunt keeps looking back at us." A pause. "I think she's worried you might hurt me again."
 
-Ayesha finally turned to look at her cousin. Areeba's expression was open, sincere, concerned. Everything it should be.
+Ayesha's hands clenched in her lap. He was enjoying this. Twisting the knife.
 
-"Are you?" Ayesha asked quietly.
+"I didn't hurt you," she said quietly, still not looking over.
 
-Areeba's smile didn't waver. "Of course. Who else would I be?"
+"Didn't you?" The voice was still Areeba's, but the tone was wrong. Too confident. Too amused. "That's not what my face says. That's not what they all think."
 
-The question hung between them as the jeep bounced down the mountain road, carrying them away from the fairy-tale lake and back toward Naran. Back toward the hotel where this had all started.
+Ayesha finally turned to look at her cousin. Areeba's expression was serene, almost peaceful. But her eyes—her eyes held something cold and calculating. Something that definitely wasn't female. The way he looked at her, assessed her, was too direct. Too aggressive.
 
-Ayesha noticed small things during the descent. The way Areeba still didn't brace herself during the violent jolts that had everyone else gripping their seats. The way she didn't seem affected when they passed through a section of road with a sheer drop on one side—a drop that made Aunt Sadia close her eyes and pray.
+"What are you?" Ayesha whispered.
 
-The way she sat perfectly still for minutes at a time, barely blinking, like a doll someone had positioned and forgotten.
+Areeba smiled. Just slightly. Just enough. "Careful," he said, his voice barely audible under the jeep's engine noise. "You're already on thin ice. Keep asking questions like that and they'll think you've lost your mind."
 
-And once, when she thought no one was looking, the way her lips moved in those same silent words. Her fingers twitched against her thigh in a pattern—tap tap, pause, tap tap tap, pause—like she was counting something. Or communicating.
+Then Areeba turned away, looking out her own window, and the conversation was over.
 
-But with who? Or what?
+The rest of the descent passed in tense silence. Ayesha noticed Aunt Fareeda glancing back at them several times, her expression troubled. Once, their eyes met, and Ayesha saw the question there—*Are you okay? What's going on with you?*
+
+But how could she answer? How could she explain?
 
 By the time they reached Naran Bazar, the sun was sinking behind the mountains, painting everything in shades of orange and purple. The temperature had dropped noticeably. Tourists crowded the streets, heading to restaurants for dinner, bundled in shawls and jackets.
 
@@ -188,96 +190,144 @@ The jeeps pulled up to Lalazar Hotel just as the streetlights flickered on. Ever
 
 They trudged into the hotel lobby. The same ceiling fans. The same smell of cooking meat and pine wood. The same creaky wooden stairs leading up to their rooms.
 
-As they climbed—slowly this time, everyone exhausted—Ayesha stayed close to Areeba. Watching. Waiting for another slip. Another moment of wrongness.
+As they climbed—slowly this time, everyone exhausted—Ayesha stayed close to Areeba, but not too close. Aunt Fareeda had positioned herself between them, whether consciously or unconsciously, Ayesha wasn't sure.
 
-But Areeba climbed the stairs normally. Carefully, even, her hand on the railing. When they reached the landing where she'd fainted yesterday, she paused and looked down at the floor.
+When they reached the landing where Areeba had fainted yesterday, she paused and looked down at the floor.
 
 "This is where it happened, right?" she asked. "Where I fainted the third time?"
 
-"Yes," Aunt Fareeda said.
+"Yes," Aunt Fareeda said, her voice careful.
 
-Areeba stared at the spot for a long moment. "I don't remember it at all." She looked up at them. "That must have been scary for you all. I'm sorry."
+Areeba stared at the spot for a long moment. "I don't remember it at all." She looked up at them with such perfect, wounded innocence. "That must have been scary for you all. I'm sorry."
 
 "Don't apologize, beta," Aunt Sadia said tiredly. "Just... try not to do it again."
 
-"I'll try."
+"I'll try my best," Areeba said, and Ayesha heard the mockery underneath. The performance.
 
 They continued to the second floor. The men split off to Room 7, the women to Room 9. Inside, everyone collapsed onto beds with grateful sighs.
 
 "I'm never going anywhere that requires jeeps again," Aunt Sadia announced, pressing her hands to her lower back. "My spine has relocated to somewhere near my brain."
 
-Despite everything, Ayesha felt a weak smile tug at her lips. Around her, the women settled into the comfortable rhythm of family—complaining about sore muscles, debating whether they had time for showers, discussing what to order for dinner.
+Aunt Fareeda hummed in agreement, kicking off her shoes. "I'm going to shower first if no one minds. I feel like I'm covered in dust."
 
-Normal. It all seemed so normal.
+"Go ahead," Aunt Sadia said, already pulling out her phone charger even though there was no signal.
 
-Except for Areeba.
+As Aunt Fareeda gathered her things and disappeared into the bathroom, the room settled into quiet. Aunt Sadia closed her eyes, resting. The younger cousins had gone to the men's room to play with their brothers.
 
-She sat on her bed, hands folded in her lap, watching everyone with that same intense attention. Learning. Cataloging. When Aunt Fareeda made a joke about Uncle Jamil's driving commentary, everyone laughed—and a half-second later, Areeba laughed too. Like she'd had to remember that jokes required laughter.
+Which left Ayesha and Areeba.
 
-Ayesha caught her eye across the room. For a moment, they just stared at each other.
+Ayesha sat on her bed, pulling out a book from her bag, trying to look occupied. She could feel Areeba watching her from across the room.
 
-Then Areeba smiled. Slow and deliberate.
+Minutes passed. The sound of the shower ran in the background. Aunt Sadia's breathing had deepened—not quite asleep, but close.
 
-And Ayesha knew, with bone-deep certainty, that whatever was behind that smile was not her cousin.
+"You're very quiet," Areeba said suddenly, her voice low.
 
-But how could she prove it? How could she make anyone believe her when she barely believed it herself?
+Ayesha didn't look up from her book. "I'm reading."
 
-The entity—because that's what it was, Ayesha was sure now, some kind of entity—had been perfect downstairs. Victimized and vulnerable in all the right ways. It knew how to play them. How to use their love for Areeba against them.
+"No, you're not. Your eyes haven't moved across the page once."
 
-"Ayesha?" Aunt Fareeda's voice broke through her thoughts. "Are you alright? You've been very quiet."
+Ayesha's grip tightened on the book.
 
-"Just tired," Ayesha said automatically.
+She heard movement—the creak of bedsprings, footsteps on the wooden floor. Then Areeba was standing beside her bed, looking down at her.
 
-"Why don't you shower first? It might help you feel better."
+"We should talk," Areeba said quietly.
 
-Ayesha nodded and gathered her things, grateful for an excuse to escape those watching eyes. In the bathroom, she locked the door and leaned against it, finally allowing herself to shake.
+"There's nothing to talk about."
 
-What was she supposed to do? Who would believe her? She could barely articulate what she suspected without sounding insane.
+"I think there is." Areeba glanced at Aunt Sadia—still resting, eyes closed. Then she sat down on Ayesha's bed, close enough that their knees almost touched. "You're a problem."
 
-She turned on the shower, letting the sound of running water cover any noise, and pulled out her phone. Still no signal. Of course not.
+Ayesha's eyes snapped up. Areeba's face was calm, almost friendly. But the eyes were all wrong. Hard. Male. Assessing.
 
-Even if she had signal, who would she call? What would she say? "Hello, I think my cousin has been possessed by something"? They'd think she was crazy. Hell, she thought she was crazy.
+"I don't know what you think you saw," he continued in Areeba's voice, "but you need to let it go."
 
-But she'd seen Areeba's eyes clear. Heard her beg for help. Watched her slap herself to regain control.
+"Give her back," Ayesha whispered fiercely. "Whatever you are, get out of her body."
 
-Something had taken over her cousin's body. And the real Areeba was still in there, trapped, fighting.
+Areeba smiled—a slow, cold smile that Areeba's face had never made before. "I don't think so. I'm quite comfortable here."
 
-Ayesha splashed cold water on her face, staring at her reflection in the small mirror. She looked exhausted. Scared.
+"She was fighting you. I saw her. She's still in there—"
 
-"Think," she whispered to herself. "Think."
+"Oh, she is," he said, and there was something cruel in his tone. "Areeba is fine. She'll be back. In fact—" he tilted his head, as if listening to something internal, "—we're going to share this body. An arrangement, you might say. She gets some time, I get some time. Fair, don't you think?"
 
-She needed proof. Something concrete. Something undeniable.
+Ayesha felt ice spread through her chest. "That's not fair. That's not—this is her body. Her life."
 
-And she needed to figure out what this thing was, and how to get it out of Areeba before...
+"And now it's mine too." He leaned closer, and Ayesha instinctively leaned back. "Here's what's going to happen. You're going to keep your mouth shut. You're not going to tell anyone about our little... situation. Because if you do—" his smile widened, "—who do you think they'll believe? The girl who's been acting a bit strange after fainting, or the girl who attacked her cousin and left bruises on her face?"
 
-Before what?
+"I didn't—"
 
-Before it was too late. Before Areeba stopped fighting. Before whatever was wearing her skin decided it didn't need to pretend anymore.
+"But that's what it looks like, isn't it?" He touched Areeba's reddened cheek. "Evidence. And if you start talking about possession or spirits or whatever explanation your little mind comes up with, well..." He shrugged. "They'll think you're crazy. Might even send you home early. Away from the family. Away from... Areeba."
 
-Ayesha straightened, setting her jaw. Fine. If no one would believe her, she'd have to handle this herself. Watch. Document. Gather evidence.
+The threat was clear. Speak up, and he'd make sure Ayesha was isolated, discredited, removed from the situation entirely.
 
-And find a way to save her cousin.
+"Why are you doing this?" Ayesha asked, hating how her voice shook. "Why her? Why any of this?"
 
-Even if it meant confronting something impossible. Something that shouldn't exist.
+"Why?" He seemed to consider the question. "Because I can. Because I was there, and she was... available. Because this—" he gestured at Areeba's body, "—is better than where I was." His expression darkened. "You have no idea what it's like. No form. No substance. No way to touch, to feel, to experience. And then she came along, walking right through the threshold, practically inviting me in."
 
-She showered quickly, the lukewarm water doing nothing to wash away her fear. When she emerged, wrapped in a towel with her hair dripping, she found the room in semi-darkness. Aunt Fareeda had drawn the curtains and turned on only one small lamp.
+"The bus," Ayesha breathed. "When she first fainted. That's when you—"
 
-Areeba sat on her bed, silhouetted against the window, her head tilted at an odd angle. Listening to something only she could hear.
+"Smart girl." He stood up, looking down at her with something like amusement. "So here's the deal. You keep quiet. You play along. You let me have my time in this body, and Areeba gets to share it. She'll come back sometimes. You might even get to talk to her. But if you interfere—" his voice dropped, took on a harder edge, "—I can make Areeba disappear completely. I can push her down so deep she'll never surface again. Do you understand?"
 
-Or maybe not listening.
+Ayesha stared at him, horror and rage warring in her chest. "You can't—"
 
-Maybe communicating.
+"I can. And I will, if you force my hand." He straightened, and just like that, his expression shifted. Softened. Became Areeba's again—or a convincing imitation of it. "So be a good cousin. Keep your suspicions to yourself. And maybe, just maybe, we can all get through this trip without anyone getting hurt."
 
-Ayesha clutched her towel tighter and made a silent promise. She would figure this out. She would find a way to help Areeba.
+The bathroom door opened. Aunt Fareeda emerged in a cloud of steam, wrapped in a robe, toweling her hair.
 
-Even if it killed her.
+"Bathroom's free," she announced. "Ayesha, why don't you go next?"
+
+Ayesha couldn't move. Couldn't speak. She was still staring at Areeba, who smiled at her—bright and innocent and completely normal.
+
+"Go ahead, Ayesha," Areeba said sweetly. "You look like you could use a cold shower."
+
+The double meaning wasn't lost on anyone, but Aunt Fareeda just laughed. "The water's barely lukewarm as it is!"
+
+Somehow, Ayesha stood. Somehow, she gathered her clothes with numb fingers and walked to the bathroom. She closed the door behind her and locked it, then leaned against the sink, her whole body trembling.
+
+*Areeba is fine. She'll be back.*
+
+But for how long? And what would happen to her while that thing was in control?
+
+*Keep your mouth shut.*
+
+Ayesha looked at her reflection in the small, fogged mirror. She looked pale. Frightened. Young.
+
+But beneath the fear, something else was hardening. Determination.
+
+He wanted her to stay quiet. To play along. To let him have Areeba without a fight.
+
+But he'd made a mistake. He'd confirmed what Ayesha suspected. He'd admitted Areeba was still in there, still fighting, still alive in some way.
+
+Which meant she could still be saved.
+
+Ayesha turned on the shower, letting the sound of water mask any noise, and made her decision.
+
+She would play along. She would pretend to go along with his demands. But she wouldn't stop. She'd watch. She'd wait. She'd find a way to communicate with Areeba when she surfaced. She'd figure out what this thing was and how to get it out.
+
+She didn't know how yet. Didn't know if it was even possible.
+
+But she had to try.
+
+Because that thing wearing Areeba's face had made one thing clear: he was dangerous. He was in control. And he had no intention of leaving.
+
+Unless someone made him.
+
+And if no one else could see what Ayesha saw, if no one else would believe her, then she'd have to do it alone.
+
+She showered quickly, the lukewarm water doing nothing to wash away her fear or her resolve. When she emerged, the room had settled into pre-dinner preparation. Aunt Fareeda was getting dressed behind the bathroom door. Aunt Sadia was fixing her hair. 
+
+Areeba sat on her bed, scrolling through her phone—or pretending to, since there was no signal. When Ayesha entered, she looked up and smiled. A private smile. A knowing smile.
+
+A smile that said: *I own this situation. I own you. I own her.*
+
+Ayesha looked away first, hating herself for it, but knowing she had to choose her battles carefully.
 
 Outside the window, night had fallen completely over Naran. The mountains loomed black against a sky full of stars—more stars than Ayesha had ever seen, so many they looked like someone had spilled salt across velvet.
 
 Beautiful and cold and indifferent.
 
-Just like whatever was sitting on her cousin's bed, wearing her cousin's face, waiting.
+Just like the thing sitting across the room, wearing her cousin's face, waiting.
 
 Always watching.
 
-Always waiting.
+Always in control.
+
+For now.
