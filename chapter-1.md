@@ -1,141 +1,155 @@
-# CHAPTER 1 - THE ROAD TO NARAN
+# **Chapter 1: The Console**
 
-The coaster bus groaned as it climbed another winding turn, its engine straining against the incline. Inside, the smell of diesel fumes mixed with the floral sweetness of someone's perfume and the sharp tang of oranges being peeled three rows back. Areeba pressed her forehead against the cold metal railing of the seat in front of her, trying to find relief from the pressure building behind her eyes.
+The winter morning arrived in shades of silver and pearl, the sun barely cresting the horizon as Rimsha Rizvi hurried across the courtyard of the University of Lahore. Her breath formed small clouds in the frigid air, dissipating as quickly as her footsteps on the frost-touched pavement. She pulled her dupatta tighter around her shoulders, the deep maroon fabric doing little against the knife-edge of the wind.
 
-"You okay?" her Aunt Fareeda asked, adjusting the dupatta that kept sliding off her shoulder. She sat wedged between Areeba and the window, occasionally pointing out scenery nobody could properly see through the dust-filmed glass.
+Eight-fifteen. She was early—unusual for a Monday, but her mind had been restless all night. Dreams she couldn't quite remember had left her uneasy, so she'd abandoned sleep for the familiar comfort of routine.
 
-"Just a headache," Areeba mumbled, not lifting her head. The railing felt like ice against her skin, a small mercy in the stuffy bus. Outside, the Punjab plains had given way to rocky terrain, the landscape transforming with every kilometer that brought them closer to Naran.
+The campus felt different at this hour. Empty. The pale light cast long shadows from the eucalyptus trees, and the usual chaos of students hadn't yet descended. Only the distant clang of the chai vendor setting up his stall and the lonely caw of crows broke the silence. Rimsha's sneakers squeaked against the polished floor as she entered the medical sciences building, the sound echoing through corridors that seemed cavernous without the usual press of bodies.
 
-Across the aisle, her sister Ayesha was scrolling through her phone, trying to catch the last bars of signal before they ventured deeper into the mountains. The rest of the family, Uncle Jamil, Aunt Sadia, and the kids, occupied the seats behind them, their chatter creating a constant buzz of excitement.
+Section A2 was on the third floor. She took the stairs two at a time, her backpack heavy with anatomy textbooks and the weight of approaching exams. The stairwell smelled of floor cleaner and something else—dampness, maybe, from the overnight cold seeping through old walls.
 
-"Lahore seems like days ago already," Aunt Fareeda said, fanning herself with a magazine. "These trips always feel longer than they are."
+The classroom door stood ajar.
 
-Areeba didn't respond. The headache had sharpened into something else, a strange hollowness spreading through her limbs. The bus hit a pothole, and the jolt sent a wave of nausea through her stomach. She kept her forehead pressed to the railing, her breathing shallow.
+Warm air spilled out, a blessed relief, along with the sound of quiet conversation. Rimsha pushed inside to find only five other students scattered among the rows of desks. Sana sat in their usual spot by the window, her headscarf a bright turquoise that defied the gray morning.
 
-The pressure built. And built.
+"You're early," Sana said, looking up from her phone with surprise. "Are you feeling okay?"
 
-And then, nothing.
+"Couldn't sleep." Rimsha slid into the seat beside her, dropping her bag with a thud. "Where is everyone?"
 
----
+"Winter fog delayed the campus shuttle. Professor Malik sent a message—class starts at nine instead of eight-thirty." Sana tilted her head, studying Rimsha with the keen attention of a best friend. "You look pale. More than usual, I mean."
 
-"Areeba?"
+"Thanks," Rimsha said dryly, but she rubbed her hands together, trying to work warmth back into her fingers. Through the window, the campus spread below them, still draped in wisps of morning mist. The cricket ground was barely visible, its boundary fence emerging like ghosts from white.
 
-The voice sounded distant, muffled, like someone calling from underwater.
+The classroom's fluorescent lights hummed overhead, that perpetual electrical drone that became white noise after a while. Someone had tried to make the space cheerful—posters of the human circulatory system competed for wall space with a faded motivational quote about doctors being angels in disguise. The quote had always made Rimsha uncomfortable. She didn't feel like an angel. Most days, she barely felt competent.
 
-"Areeba!"
+"Did you finish the neurology reading?" Sana asked, pulling out her notes.
 
-Louder now. Sharper.
+Rimsha nodded, reaching for her own notebook, when movement outside the classroom caught her eye.
 
-Ayesha looked up from her phone, her thumb frozen mid-scroll. She'd heard Aunt Fareeda call her sister's name three times now, each repetition climbing in pitch. Something in that tone made her stomach tighten.
+Two figures in the corridor. Men. They moved with purpose, heads turning to peer through each classroom door window as they passed. Dark jackets, hood-like collars turned up. Something about their posture—tense, hunting—made Rimsha's stomach tighten.
 
-"What's wrong?" Ayesha asked, pulling out her earbuds.
+"What's wrong?" Sana followed her gaze.
 
-Aunt Fareeda's face had gone pale. "She's not answering." Her hand hovered over Areeba's shoulder, uncertain. "I thought she was just sleeping, but—"
+"I don't know. They just seem..." Rimsha trailed off. The university had visitors all the time. Guest lecturers, administrative staff, maintenance workers. But these men didn't carry themselves like they belonged here. And they were coming closer.
 
-"Areeba!" Ayesha leaned across the aisle, her voice cutting through the ambient noise of the bus. The chatter behind them stuttered, then died.
+The few other students in the room were absorbed in their phones or textbooks, oblivious. The clock on the wall ticked loudly. Eight-forty-three.
 
-No response.
+The footsteps stopped.
 
-Aunt Fareeda grabbed Areeba's shoulder and pulled her upright. Her niece's head lolled backward, boneless, her eyes rolled up so only the whites showed. A thin line of saliva glistened at the corner of her slack mouth.
+Right outside their door.
 
-"Ya Allah!" Aunt Sadia gasped from the seat behind.
+Rimsha's heart began to hammer against her ribs, a warning that felt both primitive and oddly specific. Through the small rectangular window in the door, she saw a face appear—sharp features, dark eyes scanning the room with mechanical precision. The door handle turned.
 
-The bus suddenly felt too small, the air too thick. Aunt Fareeda's hands trembled as she shook Areeba's shoulders. "Beta! Beta, wake up!"
+"Good morning," said a voice that carried no warmth. "We're looking for someone."
 
-Nothing. Areeba was completely motionless, a ragdoll in her aunt's arms.
+Both men entered, and the temperature in the room seemed to drop. They were younger than Rimsha had first thought—maybe late twenties—but their faces held a hardness that had nothing to do with age. The taller one had a scar above his left eyebrow, barely visible. The other's jaw worked methodically on what might have been gum.
 
-"What happened? What's going on?" Uncle Jamil pushed forward, his bulky frame blocking the narrow aisle.
+"Can we help you?" asked Hamza, a third-year student sitting near the front. His voice held the uncertain friendliness of someone trying to defuse strangeness with politeness.
 
-"She fainted!" Ayesha was already digging through her bag. "Does anyone have water?"
+Neither man looked at him. Their eyes locked onto Rimsha.
 
-A bottle appeared, thrust forward by shaking hands. Aunt Fareeda unscrewed it with fumbling fingers, water sloshing over the rim. She sprinkled it on Areeba's face, once, twice, three times. The droplets rolled down her niece's cheeks like tears, but Areeba remained still as stone.
+"You," said the scarred one, pointing. "Rimsha Rizvi."
 
-"More water!" Uncle Jamil commanded. "Driver, stop the bus!"
+The use of her full name, spoken with flat certainty, sent ice through her veins. Sana's hand found hers under the desk, squeezing hard.
 
-"I can't stop here, sahib!" the driver called back, not taking his eyes off the twisting road. "There's no shoulder. We're fifteen minutes from the rest stop!"
+"I... yes?" Rimsha's voice came out smaller than she wanted. Her mind was suddenly racing, fragments of thought colliding—*how did they find me, they shouldn't know, I was careful—* She forced the spiral to stop. "Who are you?"
 
-"Then drive faster!" Aunt Sadia's voice cracked.
+"We need to talk to you. Outside." It wasn't a request.
 
-Ayesha dampened her dupatta and pressed it against Areeba's forehead, her own heart hammering against her ribs. Her sister's skin felt wrong, too cold, too clammy. "Areeba, come on. Wake up. *Please.*"
+"About what?" She tried to stand but found her legs unreliable. The other students were staring now, conversations died, the atmosphere thick with tension.
 
-The bus careened around another bend. Someone in the back was reciting Ayat al-Kursi, the prayer barely audible over the engine's roar.
+"About what you took," the second man said, his jaw still working that rhythmic chew. "We just want it back. No trouble."
 
-Then...
+Rimsha's throat went dry. She kept her face carefully neutral, the same expression she used during oral exams when she wasn't sure of an answer. "I don't know what you're talking about," she said, and was grateful her voice didn't shake. "I haven't taken anything."
 
-Areeba's eyelids fluttered.
+It was true, in a way. She hadn't taken it. Not exactly.
 
-A collective breath released.
+The scarred man took a step closer, and Rimsha's carefully controlled facade cracked. Her instincts screamed. She shot to her feet, the desk screeching against the floor.
 
-Her eyes opened slowly, unfocused, pupils dilated and dark. She blinked once, twice, looking around at the circle of frightened faces hovering over her as if she'd never seen them before.
+"Come on," Sana hissed, pulling her toward the back of the classroom. There was a second door there, leading to the storage area—maybe they could—
 
-"What..." Her voice came out hoarse, confused. "What happened?"
+"Don't make this difficult," the second man said, moving faster now, cutting off the angle.
 
-"You fainted, beta!" Aunt Fareeda's relief came out as anger. "You scared us half to death! What's wrong with you?"
+Rimsha stumbled backward, her hip catching the corner of a desk. Pain flared, sharp and sudden, causing her to gasp. She twisted, reaching for balance, and her ankle rolled beneath her. The floor rushed up and she landed hard on her side, the impact jarring her shoulder and skinning her palm against rough tile.
 
-Areeba's hand drifted to her forehead. The wet dupatta slid off, landing in her lap. "I don't... I don't know. I just felt dizzy and then..." She trailed off, her brow furrowing.
+"Rimsha!" Sana dropped beside her.
 
-"When did you eat last?" Uncle Jamil demanded. "Did you have breakfast?"
+"We don't have time for this." The scarred man loomed over them now, and Rimsha could smell cigarette smoke clinging to his jacket. "Where is the console? We know your brother gave it to you."
 
-"I... yes. I had parathas. And chai." Areeba tried to sit up straighter, but Aunt Fareeda held her shoulder.
+The word—*console*—hit her like a physical blow. Her brother's face flashed in her mind, that last video call, the strange intensity in his eyes when he'd said *keep it safe, don't tell anyone, I'll explain everything soon.* That had been four days ago.
 
-"Easy, easy. Don't move too fast."
+"My brother?" Rimsha heard herself say, and she pushed genuine confusion into her voice. It wasn't hard—she *was* confused about so many things. Just not about what they were asking for. "He didn't give me anything! I don't know what console you mean!"
 
-"Maybe it's car sickness," Ayesha offered, though she didn't sound convinced. "The roads are pretty bad."
+The lie tasted bitter, but she held the scarred man's gaze. Her medical training had taught her to project calm in emergencies. She used every bit of that training now.
 
-"Or dehydration," Uncle Jamil said, nodding as if he'd diagnosed the problem. "These long trips, people forget to drink water. Here..." He pushed the bottle into Areeba's hands. "Drink."
+"She's lying," the second man said, but there was doubt in his voice. He was looking at her not like a thief, but like someone who might genuinely be confused. "Check her bag."
 
-Areeba obeyed, taking small sips. Color was slowly returning to her face, the awful grayish tint fading. Around them, the other passengers were settling back into their seats, the crisis apparently over. The bus rumbled on.
+"No!" Rimsha clutched her backpack to her chest—a reflex that was at least honest. The console wasn't in there, but she couldn't let them search her things. Couldn't let them find anything that might lead them to—
 
-"You feel better now?" Aunt Fareeda asked, searching her niece's face.
+The scarred man bent down, reaching—
 
-"Yes." Areeba managed a weak smile. "I'm fine. Really. Sorry for scaring everyone."
+A phone rang.
 
-But Ayesha noticed the way her sister's hands trembled as she held the water bottle. And the way her eyes kept darting to the window, as if looking for something in the passing landscape.
+The sound was absurdly normal—a generic ringtone—but it shattered the moment like glass. The scarred man straightened, pulling a cell phone from his pocket. He glanced at the screen and his jaw tightened.
 
----
+"Yes?" A pause. His eyes never left Rimsha's face. "Understood. Yes. We're here now." Another pause, longer. His expression shifted—frustration, maybe calculation. "Confirmed. We'll return."
 
-Twenty minutes later, the incident had faded into family lore. Uncle Jamil was already retelling it with embellishments ("I thought we'd lost her!"), and the kids were giggling again in the back. Areeba insisted she felt fine, and gradually, the normalcy of the trip reasserted itself.
+He ended the call.
 
-They played word games. They sang old film songs, slightly off-key. They argued good-naturedly about which hotel in Naran had the best breakfast. The mountains grew taller, more imposing, their peaks disappearing into low-hanging clouds.
+The two men looked at each other, some wordless communication passing between them. Rimsha's palm stung where she'd scraped it, and her shoulder throbbed, but she forced herself to stay still, every muscle locked. Her mind was already working, calculating—*how much time do I have, where is it safe, can I move it before—*
 
-Areeba even laughed at Uncle Jamil's terrible jokes, though Ayesha thought the laughter sounded forced, brittle at the edges.
+"You have until tonight," the scarred man said finally, his voice dropping to something almost conversational, which somehow made it more terrifying. "Find the console. We know you have it, or you know where it is. Don't try to run. Don't go to the police. We'll know."
 
-When the bus finally pulled into a gas station, a squat concrete building with sun-faded signs advertising Pepsi and cigarettes, everyone groaned with relief.
+Rimsha's breath caught—a tiny hitch she couldn't control. Had he seen something in her face? Some flicker of recognition?
 
-"Finally!" Aunt Sadia gathered her purse. "I need to stretch my legs before they fall off."
+"But I don't—" she started.
 
-"Toilet break!" one of the kids announced unnecessarily.
+"Tonight," he repeated. "We'll be watching, Rimsha Rizvi. Don't make us come back the hard way."
 
-The driver killed the engine, and the sudden silence felt profound after hours of mechanical rumbling. Passengers shuffled toward the exit, joints cracking, backs aching. The air outside would be fresher, cleaner, tinged with pine and mountain cold.
+They left as quickly as they'd arrived, their footsteps receding down the corridor with eerie synchronization. The classroom door swung shut with a soft click that seemed deafening in the sudden silence.
 
-Ayesha stood and stretched, her spine popping. Areeba rose beside her, moving carefully, as if testing her own stability.
+For a long moment, nobody moved. Then Hamza stood shakily, went to the door, and locked it.
 
-"You sure you're okay?" Ayesha asked quietly.
+"What," Sana whispered, helping Rimsha sit up, "was *that*?"
 
-"I told you, I'm fine." Areeba's tone had an edge to it. "Stop worrying."
+Rimsha looked down at her trembling hands—the shaking was real enough, fear mixed with something else she couldn't name—at the small scrape across her palm starting to bead with blood. Her medical training noted distantly that it was superficial, nothing serious. But the terror squeezing her chest had nothing to do with physical injury.
 
-They filed off the bus with the other women, Aunt Fareeda, Aunt Sadia, and a couple of family members. The men headed toward the small mosque adjacent to the gas station. The children scattered like birds, thrilled to be free from confinement.
+"I have no idea," she said, and the words felt like ash in her mouth. She forced herself to meet Sana's eyes, to look as lost and frightened as her friend expected. "I swear to God, Sana, I have no idea what they're talking about."
 
-The gas station sat at the edge of a valley, surrounded by rocky hills that would soon become proper mountains. The air was noticeably cooler here, crisp and thin. Ayesha inhaled deeply, grateful to fill her lungs with something other than recycled bus air.
+The oath sat heavy on her conscience, but what else could she say? Aamir had been clear: *trust no one.*
 
-"The toilets are around back," Aunt Sadia said, wrinkling her nose. "Hopefully they're not too terrible."
+Outside the window, the sun had finally burned through the mist, flooding the campus with clear, cold light. Students were beginning to arrive for the nine o'clock classes, walking in laughing groups, clutching coffee cups, gloriously unaware.
 
-They walked as a group across the cracked concrete, their footsteps echoing. Somewhere, a radio played tinny music. The gas station attendant watched them with disinterested eyes while manually pumping fuel into the bus.
+And somewhere among them, Rimsha knew with sick certainty, those men were watching.
 
-Areeba walked beside Ayesha, her sandals scuffing against the ground.
+Waiting.
 
-Three steps.
+For something she couldn't give them. Wouldn't give them. Even if she didn't fully understand why.
 
-Four.
+The clock ticked toward nine, each second a countdown. Professor Malik would arrive soon. Class would begin. Everyone would pretend this was a normal Monday morning.
 
-Five.
+But Rimsha's phone felt suddenly heavy in her pocket. She pulled it out with shaking fingers—partly for show, partly because she needed to know—and opened her messages. Nothing from Aamir in three days. Not since that last cryptic video call.
 
-Ayesha heard it before she saw it, a sound like a sack of rice hitting concrete.
+*Keep it safe. Don't tell anyone. I'll explain everything soon.*
 
-She turned.
+"Call your brother," Sana said, watching her. "Right now."
 
-Areeba was on the ground.
+Rimsha nodded, throat tight, and dialed. She knew, somehow, what would happen before it did.
 
-Not stumbling. Not kneeling. Fully collapsed, her body crumpled at an impossible angle, her head turned to the side, her eyes open but seeing nothing.
+It rang once. Twice. Three times.
 
-For a frozen moment, no one moved. The mountain wind whistled through the valley, cold and indifferent.
+Then a message: *The number you have dialed is currently switched off.*
+
+She tried again, her fingers not having to fake their trembling now. Same result.
+
+"Sana," Rimsha said slowly, and this fear at least was entirely genuine. "Something's really wrong."
+
+*Aamir, what have you gotten me into?*
+
+Through the window, the campus bustled with ordinary life. But Rimsha Rizvi's world had fractured into before and after, and she had until nightfall to decide what to do with the knowledge burning a hole in her conscience.
+
+The console was hidden. Safe. For now.
+
+The question was: how long could she keep lying to everyone—these men, Sana, maybe even herself—about what she knew?
+
+And what would happen when the truth finally came to light?
